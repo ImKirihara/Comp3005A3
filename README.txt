@@ -1,7 +1,7 @@
 Ellie Molina
 101272342
 
-Youtube Link:
+Youtube Link: https://youtu.be/YEOb3mTVNXM
 
 Steps to Set Up Application:
 
